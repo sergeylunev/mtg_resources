@@ -4,6 +4,7 @@
 * https://youtu.be/fx1HLJjBngo — Mana Curve and Land Bases
 * https://youtu.be/-oHXgHZpbGU — Deck Archetypes - Aggro, Control, Combo
 * https://youtu.be/BD87RkKeutI — Midrange vs Tempo Decks
+* https://youtu.be/MkIu2fpX9Ug — Learn To Be A Better Aggro Player
 
 # MTGGoldfish Brewer's Minute
 * https://www.youtube.com/playlist?list=PLtLlcD-b2JRH8kzX1ymYm8wj22QJPty7c — play list with all the videos of series.
